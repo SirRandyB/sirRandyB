@@ -1,4 +1,4 @@
-- 🌱 I’m currently refreshing my knowlwedge on React.
+- 🌱 I’m currently refreshing my knowledge on React.
 - 📫 How to reach me: banksrandy91@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I enjoy playing video games and love to run.
